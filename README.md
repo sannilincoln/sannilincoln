@@ -47,7 +47,7 @@ I'm Sunday Sanni – a **Software Developer** passionate about crafting exceptio
 
 ## 🌍 Let's Connect!
 - 💼 [LinkedIn](https://linkedin.com/in/sannisunday)
-- 📫 [Email](mailto:your-email@example.com)
+- 📫 [Email](mailto:gbengaslc@gmail.com)
 
 ---
 
